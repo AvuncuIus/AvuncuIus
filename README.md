@@ -10,8 +10,8 @@
 
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=green&label=I'VE+GOTCHA+NOW!)     <– ᴰᵃᵐⁿᵉᵈ ᵗʰⁱⁿᵍ ⁱˢ ᵇᵘˢᵗᵉᵈ ᵇʸ ᵗʰᵉ ʷᵃʸ ,, ᴵ'ˡˡ ᵍᵉᵗ ⁱᵗ ʳᵘⁿⁿⁱⁿ' ᵉᵛᵉⁿᵗᵘᵃˡˡʸ
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ 
-‎ ‎ Some of my CURRENT interests:
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎
+‎ ‎Some of my CURRENT interests:
   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ Feel free to talk to me about 'em, I'on mind.
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
