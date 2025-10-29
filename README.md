@@ -8,7 +8,7 @@
 ![Messenger_creation_4B611FBF-67EC-45BC-B726-D83C126E56A6](https://github.com/user-attachments/assets/2cc9373e-f6e9-49b6-b896-a55e8cff3a8f)
 
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=green&label=I'VE+GOTCHA+NOW!)     <– Damned thing's busted
+![](https://komarev.com/ghpvc/?username=your-github-username&color=green&label=I'VE+GOTCHA+NOW!)     <– ᴰᵃᵐⁿᵉᵈ ᵗʰⁱⁿᵍ ⁱˢ ᵇᵘˢᵗᵉᵈ ᵇʸ ᵗʰᵉ ʷᵃʸ ,, ᴵ'ˡˡ ᵍᵉᵗ ⁱᵗ ʳᵘⁿⁿⁱⁿ' ᵉᵛᵉⁿᵗᵘᵃˡˡʸ
 
 ‎ ‎ Some of my CURRENT interests:
   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎Feel free to talk to me about 'em
