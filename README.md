@@ -7,7 +7,14 @@
 ‎ ʸᵒᵘ'ʳᵉ ᶠʳᵉᵉ ᵗᵒ ᶜᵃˡˡ ᵐᵉ ᴬᵛ/ᴬᵛᵘⁿ ᶠᵒʳ ˢʰᵒʳᵗ
 
 ![Messenger_creation_4B611FBF-67EC-45BC-B726-D83C126E56A6](https://github.com/user-attachments/assets/2cc9373e-f6e9-49b6-b896-a55e8cff3a8f)
-
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+██████████████████████████████‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+‎
+![Messenger_creation_5C4E63F3-AF92-43F6-8FBA-2193052C34A4](https://github.com/user-attachments/assets/21180128-918b-4e0a-961a-eec27a7c5cb6) *Honorary Mention: ᴿⁱⁿᵍᵒ,, ML!!*
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+████████████████████████‎██████
+‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=green&label=I'VE+GOTCHA+NOW!)     <– ᴰᵃᵐⁿᵉᵈ ᵗʰⁱⁿᵍ ⁱˢ ᵇᵘˢᵗᵉᵈ ᵇʸ ᵗʰᵉ ʷᵃʸ ,, ᴵ'ˡˡ ᵍᵉᵗ ⁱᵗ ʳᵘⁿⁿⁱⁿ' ᵉᵛᵉⁿᵗᵘᵃˡˡʸ
 
@@ -50,7 +57,6 @@
   </a>
 </p> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <H6>(Oh, forgot to mention, if it seems like it's been stuck on a song for a while, just refresh the page)</H6>
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
- ‎ 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+
     
    —<B>Avunculus</B>,, signin' off!
