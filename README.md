@@ -18,7 +18,7 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ᴴᵐ: ᴹᴹ¹² ᵃⁿᵈ ᵗʰᵉ ᵘˢᵉʳˢ ʳᵉˡᵃᵗᵉᵈ
 ‎ ‎ ‎ ‎
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![Messenger_creation_742E86E8-B3F2-43D6-B1F5-267201531D39](https://github.com/user-attachments/assets/e12bd504-a8f8-470f-a6ef-d13e9da99c13)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-*Some things you ought to avoid when talking to me! ,,‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎Otherwise, Avoid interacting completely, thank ya in advance!*
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎*Some things you ought to **avoid** when talking to me! ,,‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎Otherwise, Just don't interact at all, thank ya' in advance!*
 
 ¹.) ᴺˢᶠᵂ, ᵍᵒʳᵉ ⁱˢ ᵗᵒˡᵉʳᵃᵇˡᵉ, ᵇᵘᵗ ʷʰᵉⁿ ʸᵒᵘʳ ʷᵒʳᵈˢ ᵗʳᵉᵃᵈ ⁱⁿᵗᵒ ˢ*ˣᵘᵃˡ ᵗᵉʳʳⁱᵗᵒʳʸ, ʸᵒᵘ'ʳᵉ ᵇᵒᵘⁿᵈ ᵗᵒ ᵍᵉᵗ ᵇˡᵒᶜᵏᵉᵈ.‎
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
