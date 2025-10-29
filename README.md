@@ -11,7 +11,7 @@
 ‎‎
 ‎
 
-***"Blub blub" — My 'Shakespearean' fishy, aka...*** ‎ ‎ ‎ ‎
+***"Let me pose like one of your french girls… Blub blub." — My 'Shakespearean' fishy, aka...*** ‎ ‎ ‎ ‎
 
 ███████████████████████‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 ‎ ‎ ‎ ‎ ‎
