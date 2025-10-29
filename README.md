@@ -38,10 +38,10 @@
 
 ![Messenger_creation_D3754EA2-326D-4CD4-9439-0C2E9124B3DD](https://github.com/user-attachments/assets/1e04f9c1-6841-4321-9a27-e3e9484101cf)
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  
-<H3>Spotify!</H3>
+<H3>Spotify:</H3>
 
-<H5>… C'mon! let's jam!</H5>
-‎(ᵀʰⁱˢ ⁱˢ ˢᵒ ᶜʳⁱⁿᵍᵉ... ʸᵉᵉˢʰ)‎
+<H5>Songs i'm listenin' to, right now, this very moment!</H5>
+ (ᵀʰⁱˢ ⁱˢ ˢᵒ ᶜʳⁱⁿᵍᵉ... ʸᵉᵉˢʰ)
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 <p align="center">
