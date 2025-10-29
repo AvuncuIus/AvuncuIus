@@ -21,7 +21,7 @@
 ‎‎
 
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=green&label=I'VE+GOTCHA+NOW!)     <– ᴰᵃᵐⁿᵉᵈ ᵗʰⁱⁿᵍ ⁱˢ ᵇᵘˢᵗᵉᵈ ᵇʸ ᵗʰᵉ ʷᵃʸ ,, ᴵ'ˡˡ ᵍᵉᵗ ⁱᵗ ʳᵘⁿⁿⁱⁿ' ᵉᵛᵉⁿᵗᵘᵃˡˡʸ
+![](https://komarev.com/ghpvc/?username=your-github-username&color=green&label=I'VE+GOTCHA+NOW!)   <– ᴰᵃᵐⁿᵉᵈ ᵗʰⁱⁿᵍ ⁱˢ ᵇᵘˢᵗᵉᵈ ᵇʸ ᵗʰᵉ ʷᵃʸ ,, ᴵ'ˡˡ ᵍᵉᵗ ⁱᵗ ʳᵘⁿⁿⁱⁿ' ᵉᵛᵉⁿᵗᵘᵃˡˡʸ
 
 ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ 
 ‎<H3> Some of my CURRENT interests:</H3> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
