@@ -22,8 +22,7 @@
 ‎‎
 
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=green&label=I'VE+GOTCHA+NOW!)   <– ᴰᵃᵐⁿᵉᵈ ᵗʰⁱⁿᵍ ⁱˢ ᵇᵘˢᵗᵉᵈ ᵇʸ ᵗʰᵉ ʷᵃʸ ,, ᴵ'ˡˡ ᵍᵉᵗ ⁱᵗ ʳᵘⁿⁿⁱⁿ' ᵉᵛᵉⁿᵗᵘᵃˡˡʸ
-
+![github views](https:!!komarev.com/ghpvc/?username=<AvuncuIus>&color=green&label=I'VE+GOTCHA+NOW!)   
 ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ 
 ‎<H3> Some of my CURRENT interests:</H3>
 
