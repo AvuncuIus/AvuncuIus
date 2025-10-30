@@ -22,7 +22,7 @@
 ‎‎
 
 
-[![GitHub Views](https://komarev.com/ghpvc/?username=AvuncuIus&color=bd2102)] <-I'm watchin' you, bucko... Jokes, jokes.
+[![GitHub Views](https://komarev.com/ghpvc/?username=AvuncuIus&color=bd2102)]  <-I'm watchin' you, bucko... Jokes, jokes.
 
 ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ 
 ‎<H3> Some of my CURRENT interests:</H3>
