@@ -11,13 +11,13 @@
 ‎‎
 ‎
 
-***"Let me pose like one of your french girls… Blub blub." — My 'Shakespearean' fishy, aka...*** ‎ ‎ ‎ ‎
+***"Let me pose like one of your french girls…"*** ‎ ‎ ‎ ‎
 
 ███████████████████████‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 ‎ ‎ ‎ ‎ ‎
 ![Messenger_creation_5C4E63F3-AF92-43F6-8FBA-2193052C34A4](https://github.com/user-attachments/assets/21180128-918b-4e0a-961a-eec27a7c5cb6) 
 
-*Honorary Mention: ᴿⁱⁿᵍᵒ,, ML!!* <H6>(They are VERY cool, don't be afraid to int with them!)</H6>
+*Honorary Mention: ᴿⁱⁿᵍᵒ,, My Dearest!!* <H6>(They are VERY cool, don't be afraid to int with them!)</H6>
 ‎███████████████████████
 ‎‎
 
