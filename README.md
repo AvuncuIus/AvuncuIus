@@ -68,7 +68,7 @@
  ‎ ‎ ‎ ‎ ‎ ‎ ‎  
 <H3>Spotify:</H3>
 
-<H5>The song i'm listenin' to right now, go ahead n' check out the artist if you're curious</H5>
+<H5>What i'm jammin' out to this very moment, go ahead n' check out the song if you're curious!</H5>
  (ᴮᵉᵃʳ ʷⁱᵗʰ ᵐʸ ᵐᵘˢⁱᶜ ᵗᵃˢᵗᵉ, ᴵ ᵇᵉᵍ ᵒᶠ ʸᵒᵘ)
 
 ‎
