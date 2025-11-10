@@ -69,7 +69,7 @@
 <H3>Spotify:</H3>
 
 <H5>The song(s) i'm listenin' to, right now, this very moment! Go ahead n' play it on your own music streamin' service if you're curious!</H5>
- (ᴮᵉᵃʳ ʷⁱᵗʰ ᵐʸ ᵐᵘᵐᵇᵒ-ʲᵘᵐᵇᵒ ᵐᵘˢⁱᶜ ᵗᵃˢᵗᵉ, ᴵ ᵇᵉᵍ ᵒᶠ ʸᵒᵘ)
+ (ᴮᵉᵃʳ ʷⁱᵗʰ ᵐʸ ᵐᵘˢⁱᶜ ᵗᵃˢᵗᵉ, ᴵ ᵇᵉᵍ ᵒᶠ ʸᵒᵘ)
 
 ‎
 <p align="center">
