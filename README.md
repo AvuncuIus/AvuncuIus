@@ -28,7 +28,7 @@
 ‎‎
 
 
-[![GitHub Views](https://komarev.com/ghpvc/?username=AvuncuIus&color=685d73&label=Incolae+Stulti+,,)]   
+[![GitHub Views](https://komarev.com/ghpvc/?username=AvuncuIus&color=685d73&label=Soyez+prudent,+étranger+...)]   
 
 ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ 
 ‎<H3> Some of my CURRENT interests:</H3>
