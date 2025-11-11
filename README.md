@@ -94,5 +94,6 @@ Picture from Mero on discord lol
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
-<img width="1170" height="883" alt="Screenshot_2025-10-12_160609" src="https://github.com/user-attachments/assets/3a013cdf-99ca-40d6-92a0-8bfd24856705" />
+<img width="905" height="820" alt="Untitled7_20251111004130" src="https://github.com/user-attachments/assets/e78e80c2-0763-4bce-9978-e83cf770a69d" />
+
 
