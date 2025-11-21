@@ -74,7 +74,7 @@
 ‎
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&cover_image=true&theme=default&show_offline=true&background_color=290d02&interchange=true&profanity=false&bar_color=c23f25">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&cover_image=true&theme=default&show_offline=true&background_color=3f1c4d&interchange=true&profanity=false&bar_color=733f8f">
   </a>
 </p>
 ‎<H6>(If it seems like it's been stuck on a song for a while, just refresh the page)</H6>
