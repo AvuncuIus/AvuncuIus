@@ -1,6 +1,6 @@
 
- Nice to meet you, I'm 
-       **Avun, aka Xechlzedek**.
+<code style="color : #7703a1">Nice to meet you, I'm 
+       **Avun, aka Xechlzedek**.</code>
 
 
 ‎ ‎ ‎ ᴴᵉ/ᴴⁱᵐ/ᴴⁱˢ ,, ᵐᵃˡᵉ ˢⁱⁿᶜᵉ ᵗʰᵉ ˢᵗᵃʳᵗ
@@ -31,7 +31,7 @@
 [![GitHub Views](https://komarev.com/ghpvc/?username=AvuncuIus&color=685d73&label=Soyez+prudent,+étranger+...)]   
 
 ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ 
-‎<H3> Some of my CURRENT interests:</H3>
+‎<H3> <code style="color : #7703a1">Some of my CURRENT interests:</code></H3>
 
 ‎Feel free to talk to me about 'em, I'on mind.
 
@@ -46,7 +46,7 @@
 
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <H3>‎*Some things you ought to **avoid** when talking to me ,,‎*</H3> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <H3>‎<code style="color : #7703a1">*Some things you ought to **avoid** when talking to me ,,</code>‎*</H3> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎
 
 <sub>‎ Otherwise just don't interact at all, thanks in advance. </sub>‎ ‎ ‎ ‎
 ‎
@@ -66,7 +66,7 @@
 
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎  
-<H3>Spotify:</H3>
+<H3><code style="color : #7703a1">Spotify:</code></H3>
 
 <H5>What i'm jammin' out to this very moment, go ahead n' check out the song if you're curious!</H5>
  (ᴮᵉᵃʳ ʷⁱᵗʰ ᵐʸ ᵐᵘˢⁱᶜ ᵗᵃˢᵗᵉ, ᴵ ᵇᵉᵍ ᵒᶠ ʸᵒᵘ)
@@ -86,8 +86,8 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 ██████████████████████
-<H4>Bonus:</H4>
-Picture from Mero on discord lol
+<H4><code style="color : #7703a1">Bonus:</code></H4>
+Image from Mero on discord
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
