@@ -1,6 +1,6 @@
 
  Nice to meet you, I'm 
-       **Avunculus, aka Xechlzedek**.
+       **Avun, aka Xechlzedek**.
 
 
 ‎ ‎ ‎ ᴴᵉ/ᴴⁱᵐ/ᴴⁱˢ ,, ᵐᵃˡᵉ ˢⁱⁿᶜᵉ ᵗʰᵉ ˢᵗᵃʳᵗ
