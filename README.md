@@ -32,7 +32,6 @@ I'm
 
 ‎
 ‎‎
-![Messenger_creation_860C906E-E10A-47DF-81C7-A0D208054251](https://github.com/user-attachments/assets/ea3d3513-0a58-4b22-ab27-647068cd81bd)
 
 
 
