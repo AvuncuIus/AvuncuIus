@@ -18,13 +18,16 @@ I'm
 ‎
 
 
-‎![1773413_b5a31](https://github.com/user-attachments/assets/0a1fb8ba-aacd-4661-be28-2d6908073c74)
-![2865547_d70e4](https://github.com/user-attachments/assets/54d0288f-d45d-4727-83a1-c9b3a8e0d5c1)
+‎![2865547_d70e4](https://github.com/user-attachments/assets/0497ba61-af8e-4759-b08f-f0e974f02b72)
+
+![1773413_b5a31](https://github.com/user-attachments/assets/8dfcbb37-a697-432a-80dd-9dbb532c60fd)
+
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎𝓓𝓸𝓷'𝓽 𝓫𝓮 𝓫𝓸𝓾𝓷𝓭 𝓫𝔂 𝓼𝓸𝓬𝓲𝓮𝓽𝓪𝓵 𝓷𝓸𝓻𝓶𝓼... 𝓑𝓮 𝔂𝓸𝓾, 𝓫𝓮 𝓯𝓻𝓮𝓮 . . .    ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ![2865547_d70e4](https://github.com/user-attachments/assets/34200870-04cd-4e7d-a9da-37207a0e09d5)
-![1773413_b5a31](https://github.com/user-attachments/assets/48246b9b-e281-473c-b69c-b0948eae371c)
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎![1773413_b5a31](https://github.com/user-attachments/assets/e77dc692-0ab9-444a-81dd-b091f9b7af37)
+![2865547_d70e4](https://github.com/user-attachments/assets/c90b644c-d4ec-4a74-83cc-25c4c04464bc)
+
 
 ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 
@@ -40,11 +43,13 @@ I'm
 
 ![GitHub Views](https://komarev.com/ghpvc/?username=AvuncuIus&color=1cff82&label=Soyez+prudent,+étranger+...+Ne+te+perds+pas+...)
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![tumblr_mqig0jbtvn1stezeko1_500](https://github.com/user-attachments/assets/e7cf01c3-36a1-4498-af66-1bd3794030c4)
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
  ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+![dfvwvlv-62ec363e-1ab1-4c72-a2db-f66b85d4723e](https://github.com/user-attachments/assets/c129528a-cb89-454d-9324-b013e5a596f1)
+![ee8a8b6433fe7de7baf9e71cdbd83f58](https://github.com/user-attachments/assets/0bbe2f25-ece5-47f9-b110-3235e9dd8e40)
 
 
-![2034195_773ee](https://github.com/user-attachments/assets/b4a6355b-0bf1-4a13-b149-1bf236ad8843)
+
 
 
 
