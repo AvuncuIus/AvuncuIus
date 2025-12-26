@@ -28,11 +28,11 @@
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&cover_image=true&theme=default&show_offline=true&background_color=170101&interchange=true&profanity=false&bar_color=eb3d34">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&cover_image=true&theme=default&show_offline=true&background_color=0b2985&interchange=true&profanity=false&bar_color=#d3eb1e">
   </a>
 </p>
 
-![GitHub Views](https://komarev.com/ghpvc/?username=AvuncuIus&color=eb3d34&label=Soyez+prudent,+étranger+...+Ne+te+perds+pas+...)
+![GitHub Views](https://komarev.com/ghpvc/?username=SpeedfastMerc&color=0554ff&label=Soyez+prudent,+étranger+...+Ne+te+perds+pas+...)
 
 ![523435044-e8c51371-ecac-41ae-a012-bf9e92245d80](https://github.com/user-attachments/assets/58a4e55e-dd35-46b9-8374-c8e7991759ea)
 ![523435079-26f82679-3c56-4fb5-9c97-5648d7034a06](https://github.com/user-attachments/assets/0bb378d2-d492-437e-9023-8ec4e0cdf8cd)
