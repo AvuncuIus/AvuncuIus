@@ -26,7 +26,8 @@
 
 ![jenson…](https://github.com/user-attachments/assets/c92174fa-28fc-4b3e-b825-524bb5f7e3ba)
 
-![bro coulda modelled fr](https://github.com/user-attachments/assets/23864923-aeb8-42c9-9609-04f3bc83d83d)
+![Gambling Fernando🤑🤑](https://github.com/user-attachments/assets/5ecbd22e-5548-482f-9586-d3ff99de1be8)
+
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 ‎<H3>‎<code style="color : #7703a1">M U S I C</code></H3>
